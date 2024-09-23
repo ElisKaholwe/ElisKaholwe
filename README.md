@@ -6,4 +6,4 @@
 
 # Let's build from here
 
-🔗 [Portfolio Website](https://wa.me/255760659831) || 🔗 [Instagram](https://www.instagram.com/?utm_source=pwa_homescreen&__pwa=1)
+🔗 [Portfolio Website](https://wa.me/255760659831)   🔗 [Instagram](https://www.instagram.com/?utm_source=pwa_homescreen&__pwa=1)
